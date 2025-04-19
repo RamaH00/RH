@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **rama.hammad64@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1P_d2F-Q6FrJjXGDC9Rttj5jNkTyIL9gx/view?usp=sharing](https://drive.google.com/file/d/1P_d2F-Q6FrJjXGDC9Rttj5jNkTyIL9gx/view?usp=sharing)
+- 📄 Know about my experiences https://drive.google.com/file/d/1ohlX6YOO8gn0URSB_HQs5FaRx6yRKdjA/view?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
